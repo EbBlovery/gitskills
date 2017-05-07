@@ -1,2 +1,2 @@
 # gitskills
-addsomethisgs
+asdssasdasdasasdass错误ddsomethisgs
